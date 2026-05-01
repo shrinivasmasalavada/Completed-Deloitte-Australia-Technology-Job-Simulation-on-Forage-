@@ -2,7 +2,13 @@
 
 * Completed the **Deloitte Australia Technology Job Simulation** on Forage, gaining hands-on experience in technology consulting, problem-solving, data analysis, and software development workflows.
 
+Forage Job Simulation
 
+Self-paced virtual training
+Company-style tasks practice
+Free certificate
+Experience gaining purpose
+Resume boosting
 
 
 
